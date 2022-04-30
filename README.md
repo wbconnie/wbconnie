@@ -15,4 +15,3 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 <br><br>
-<img src="https://i.loli.net/2021/01/30/29BUMC5iA3FOQaK.jpg" width=65% height=65%>
