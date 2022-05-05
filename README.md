@@ -13,8 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->“知交零落实在是人生
-常态，能够偶尔话
-起，而心中仍然温
-柔，就是好朋友”
+-->“知交零落实在是人生常态，能够偶尔话起，而心中仍然温柔，就是好朋友”
 <br><br>
