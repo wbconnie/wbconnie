@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->“知交零落实在是人生常态，能够偶尔话起，而心中仍然温柔，就是好朋友”
-   follow me on Twitter @WBC0NNIE & Weibo @三掱
+   follow me on Twitter @[WBC0NNIE](https://twitter.com/WBC0NNIE) & Weibo @[三掱](https://weibo.com/u/5775159888)
 <br><br>
